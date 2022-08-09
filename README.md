@@ -1,1 +1,1 @@
-# SMKN1MANGGAR
+# SMKN1MANGGAR.github.io
